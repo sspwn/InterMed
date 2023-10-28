@@ -1,2 +1,0 @@
-# InterMed
-PI DO WILSÃO
